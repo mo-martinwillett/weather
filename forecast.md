@@ -2,8 +2,8 @@
 
 ## Today
 
-Dull and grey
+Dull and dark grey cloud.
 
 ## Tomorrow
 
-Morning bright followed by showers
+Morning bright followed by showers.
